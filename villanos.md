@@ -2,4 +2,4 @@
 
 * Dr. Doom
 * Re Skull
-* Dr Herrera
+* Capitán América
